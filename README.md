@@ -19,7 +19,7 @@ i am looking forward to take a step on my career @ tech world!
 
 ## 📫 How to reach me
 
-- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/dhinakaran-avk/)
+- LinkedIn: [Dhinakaran A V K](https://www.linkedin.com/in/dhinakaran-avk/)
 
 
 ## ⚡ Fun fact
